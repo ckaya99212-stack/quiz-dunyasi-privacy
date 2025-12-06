@@ -1,1 +1,0 @@
-# quiz-dunyasi-privacy
